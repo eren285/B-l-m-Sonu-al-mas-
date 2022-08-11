@@ -1,1 +1,1 @@
-# B-l-m-Sonu-al-mas-
+# patika.dev html Bölüm Sonu Çalışması
